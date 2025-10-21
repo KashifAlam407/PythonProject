@@ -134,8 +134,8 @@ Want to add a project or improve existing ones? Feel free to fork the repo and o
 **Kashif Alam** – Robotics Engineer & Programmer  
 - GitHub: [KashifAlam407](https://github.com/KashifAlam407)
 - YouTube: [@kashifalam](https://www.youtube.com/@electroboticsai)
-- Instagram: [@kashifalam0407](https://instagram.com/kashifalam0407)
-- LinkedIn, Portfolio – Coming soon!
+- Instagram: [@kashifalam0407](https://instagram.com/kashifalam4142)
+- LinkedIn: [@MdKashifAlam](https://www.linkedin.com/in/md-kashif-alam-a55b19380/)
 
 ---
 
